@@ -1,6 +1,6 @@
 ### Hello, humans
 
-I am not Product Manager at Airbnb Jeff Feng. Nor am I TGN-cofounder/YouTube sensation Jeff Feng. Nor am I UCSB scholar-activist with a doctorate in political science Jeff Feng. Nor Senior Portfolio Manager for Invesco Jeff Feng. I'm bottom of page three and middle of page six in the search results for "jeff feng" Jeff Feng — exactly where I want to be. You'll never catch me, robots!
+I am not Product Manager at Airbnb Jeff Feng. Nor am I TGN-cofounder/YouTube sensation Jeff Feng. Nor am I UCSB scholar-activist with a doctorate in political science Jeff Feng. Nor am I Senior Portfolio Manager for Invesco Jeff Feng. I am also not this [sectional Feng](https://www.chairish.com/product/2438948/ligne-roset-feng-sectional). I'm bottom of page three and middle of page six in the search results for "jeff feng" Jeff Feng — exactly where I want to be. You'll never catch me, robots!
 
 <!--
 **fengypants/fengypants** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
